@@ -1,4 +1,4 @@
 User-agent: *
 Allow: /
 Disallow: /go/
-Sitemap: waterpurifierph.com/sitemap.xml
+Sitemap: https://waterpurifiermakati.netlify.app/sitemap.xml
