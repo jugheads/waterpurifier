@@ -1,6 +1,6 @@
 # Water Purifier Supplier in Taguig | TrueKangen
 
-If you are searching for [Water purifier supplier](https://waterpurifiermakati.netlify.app/) in Taguig, you have come to the right place. TrueKangen is a water purification company that helps local customers make confident choices, and we keep every step clear and easy to follow. Customers rate us 4.9 out of 5 on Google from 24 reviews. This guide explains what to look for, what to ask and how we work, so you can decide with confidence. Our friendly team is happy to point you in the right direction. Whether you are just starting to look or ready to decide, we hope the points below make the next step easier.
+Looking for [Water purifier supplier](https://waterpurifierph.com) in Taguig? You are in the right place. TrueKangen is a water purification company that helps local customers make confident choices, and we keep every step clear and easy to follow. Customers rate us 4.9 out of 5 on Google from 24 reviews. This guide explains what to look for, what to ask and how we work, so you can decide with confidence. Our friendly team is happy to point you in the right direction. Whether you are just starting to look or ready to decide, we hope the points below make the next step easier.
 
 ## What to know about Water purifier supplier
 
@@ -8,7 +8,7 @@ Choosing Water purifier supplier is easier when you know what matters to you bef
 
 ## Why customers choose TrueKangen
 
-From [water purifier](https://waterpurifiermakati.netlify.app/) to [water purifier kangen](https://waterpurifiermakati.netlify.app/), we begin with a friendly conversation about what you are trying to achieve and explain every option in plain language before you commit to anything. At TrueKangen, located in Bonifacio Global City, Taguig, we specialize in distributing Enagic Kangen Water Machines. Our mission is to enhance health and wellness through superior water solutions. Every customer is different, so we never push a one-size-fits-all package. If you are comparing a few options, ask us as many questions as you like before you commit to anything. We believe in being upfront about what is involved and what the next step looks like. A clear explanation and a friendly conversation go a long way, and that is what you can expect from our team.
+From [water purifier for sink](https://waterpurifierph.com) to [water purifier reverse osmosis](https://waterpurifierph.com), we begin with a friendly conversation about what you are trying to achieve and explain every option in plain language before you commit to anything. At TrueKangen, located in Bonifacio Global City, Taguig, we specialize in distributing Enagic Kangen Water Machines. Our mission is to enhance health and wellness through superior water solutions. Every customer is different, so we never push a one-size-fits-all package. If you are comparing a few options, ask us as many questions as you like before you commit to anything. We believe in being upfront about what is involved and what the next step looks like. A clear explanation and a friendly conversation go a long way, and that is what you can expect from our team.
 
 ## How we work with you
 
@@ -16,7 +16,7 @@ We start with a simple conversation about your needs, your timing and any questi
 
 ## Serving Taguig and nearby areas
 
-TrueKangen is based in Taguig, and we welcome customers from Taguig, Makati and Pasay. You can browse every service on our [home page](https://waterpurifiermakati.netlify.app/) before you get in touch. You can find us at RCBC Center, 25th St, Bonifacio Global City, Taguig. We are open Mon–Sat 10 AM–7 PM; Sun Closed. Drop by, call or send a message, whichever is easiest for you. If you are not sure where to start, a quick message is all it takes. We are always glad to answer questions, even if you are still weighing things up.
+TrueKangen is based in Taguig, and we welcome customers from Taguig, Makati and Pasay. You can browse every service on our [home page](https://waterpurifierph.com) before you get in touch. You can find us at RCBC Center, 25th St, Bonifacio Global City, Taguig. We are open Mon–Sat 10 AM–7 PM; Sun Closed. Drop by, call or send a message, whichever is easiest for you. If you are not sure where to start, a quick message is all it takes. We are always glad to answer questions, even if you are still weighing things up.
 
 ## Questions to ask before you decide
 
@@ -28,7 +28,7 @@ Once you have chosen a provider, a little preparation helps you get the most fro
 
 ## Other services from TrueKangen
 
-We also help with water Purification System Sales, water Purification Equipment Supply and residential Water Purification Solutions, so one conversation can often cover everything on your list. Bringing related needs together saves you from repeating yourself to several providers. You can see the full range of what we do on our [home page](https://waterpurifiermakati.netlify.app/). If what you need is not listed, ask anyway, because we will tell you honestly whether we can help. Every conversation starts with listening, whatever you are asking about.
+We also help with water Purification System Sales, water Purification Equipment Supply and residential Water Purification Solutions, so one conversation can often cover everything on your list. Bringing related needs together saves you from repeating yourself to several providers. You can see the full range of what we do on our [home page](https://waterpurifierph.com). If what you need is not listed, ask anyway, because we will tell you honestly whether we can help. Every conversation starts with listening, whatever you are asking about.
 
 ## Quick tips
 
@@ -37,4 +37,4 @@ We also help with water Purification System Sales, water Purification Equipment 
 - Compare providers on clarity, not only on speed.
 - Keep a written copy of the plan.
 
-Ready to get started with Water purifier supplier? Call +63906 462 3232 or head back to our [home page](https://waterpurifiermakati.netlify.app/) to see all our services.
+Ready to get started with Water purifier supplier? Call +63906 462 3232 or head back to our [home page](https://waterpurifierph.com) to see all our services.
