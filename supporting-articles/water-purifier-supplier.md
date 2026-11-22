@@ -1,6 +1,6 @@
 # Water Purifier Supplier in Taguig | TrueKangen
 
-Looking for [Water purifier supplier](https://waterpurifiermakati.netlify.app/) in Taguig? You are in the right place. TrueKangen is a water purification company that helps local customers make confident choices, and we keep every step clear and easy to follow. Customers rate us 4.9 out of 5 on Google from 24 reviews. This guide explains what to look for, what to ask and how we work, so you can decide with confidence. Our friendly team is happy to point you in the right direction. Whether you are just starting to look or ready to decide, we hope the points below make the next step easier.
+If you are searching for [Water purifier supplier](https://waterpurifiermakati.netlify.app/) in Taguig, you have come to the right place. TrueKangen is a water purification company that helps local customers make confident choices, and we keep every step clear and easy to follow. Customers rate us 4.9 out of 5 on Google from 24 reviews. This guide explains what to look for, what to ask and how we work, so you can decide with confidence. Our friendly team is happy to point you in the right direction. Whether you are just starting to look or ready to decide, we hope the points below make the next step easier.
 
 ## What to know about Water purifier supplier
 
@@ -8,7 +8,7 @@ Choosing Water purifier supplier is easier when you know what matters to you bef
 
 ## Why customers choose TrueKangen
 
-From [water purifier for sink](https://waterpurifiermakati.netlify.app/) to [water purifier for home](https://waterpurifiermakati.netlify.app/), we begin with a friendly conversation about what you are trying to achieve and explain every option in plain language before you commit to anything. At TrueKangen, located in Bonifacio Global City, Taguig, we specialize in distributing Enagic Kangen Water Machines. Our mission is to enhance health and wellness through superior water solutions. Every customer is different, so we never push a one-size-fits-all package. If you are comparing a few options, ask us as many questions as you like before you commit to anything. We believe in being upfront about what is involved and what the next step looks like. A clear explanation and a friendly conversation go a long way, and that is what you can expect from our team.
+From [water purifier](https://waterpurifiermakati.netlify.app/) to [water purifier kangen](https://waterpurifiermakati.netlify.app/), we begin with a friendly conversation about what you are trying to achieve and explain every option in plain language before you commit to anything. At TrueKangen, located in Bonifacio Global City, Taguig, we specialize in distributing Enagic Kangen Water Machines. Our mission is to enhance health and wellness through superior water solutions. Every customer is different, so we never push a one-size-fits-all package. If you are comparing a few options, ask us as many questions as you like before you commit to anything. We believe in being upfront about what is involved and what the next step looks like. A clear explanation and a friendly conversation go a long way, and that is what you can expect from our team.
 
 ## How we work with you
 
